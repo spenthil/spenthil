@@ -1,1 +1,1 @@
-https://www.spenthil.com/
+https://spenthil.com/
